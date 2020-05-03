@@ -3,7 +3,7 @@
 
 #### I DO NOT CONDONE PLAGARISM
 
-## Assigment 1
+## Assignment 1
 Weasley's Wizard shop
 
 ## Assignment 2
